@@ -7,3 +7,5 @@ Meu nome é luana lisboa ✨
 
 ![](https://media.tenor.com/eRGU5l2v-_wAAAAi/cat-meme.gif
 )
+## Você pode entrar em contato comigo em 
+-email: lisboa.luana11@escola.pr.gov.br
